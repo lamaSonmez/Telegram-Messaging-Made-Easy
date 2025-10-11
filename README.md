@@ -2,9 +2,9 @@
 
 Telegram Automatic Messaging is your all-in-one solution for managing communications across all your Telegram accounts. Designed with simplicity in mind, it's incredibly user-friendly and fully updated for 2025!
 
-## GET TOOL HERE: https://shorturl.at/yxWGr
+## GET TOOL HERE: https://shorturl.at/ObIjb
 
-Contact us for any inquiries: https://shorturl.at/ZJHUf
+Contact us for any inquiries: https://shorturl.at/CLk29
 
 <img src='UI1.png' width='450'>
 
@@ -70,6 +70,6 @@ This tool serves multiple purposes:
 We continuously implement requested features!
 For any questions, don't hesitate to reach out.
 
-## GET TOOL HERE: https://shorturl.at/yxWGr
+## GET TOOL HERE: https://shorturl.at/ObIjb
 
-Contact us for any inquiries: https://shorturl.at/ZJHUf
+Contact us for any inquiries: https://shorturl.at/CLk29
